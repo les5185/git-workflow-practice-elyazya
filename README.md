@@ -4,3 +4,9 @@
 
 ##### Link: https://medium.com/dev-genius/developers-stop-working-for-free-its-burning-you-out-66568429b8cf
 
+
+### Feedback from Tiffany Lee
+
+##### I think it is a very interesting article. Thank you! 
+
+
